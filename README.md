@@ -1,4 +1,4 @@
-# 🚀 **Welcome to AI-Social on BNB Chain!** 🚀
+# 🚀 **Welcome to AI-Social ** 🚀
 
 ## 🌈 Our Vision
 
